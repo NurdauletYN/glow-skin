@@ -47,6 +47,8 @@ We may update this Privacy Policy from time to time. The latest version will alw
 10. Contact
 Questions or requests?
 📧 n.yerkinbekov@gmail.com
+
+
 GlowSkin — Terms of Use
 Last updated: October 2025
 Welcome to GlowSkin! These Terms of Use (“Terms”) govern your access to and use of the GlowSkin app and services (the “Service”). Please read carefully before using the app.
